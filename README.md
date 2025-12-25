@@ -20,6 +20,13 @@ Currently developing a library of *60+ Enterprise-grade solutions* across variou
 
 ---
 
+
+## 🔗 Connect with Me
+* 💼 *LinkedIn:* [Dimension Dev / Murad Ismayilov](https://www.linkedin.com/in/dimension-dev-b93846396?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))
+* 📺 *YouTube:* [Dimension Dev Academy](https://www.youtube.com/@dimensiondev-v8s)
+* 📸 *Instagram:* [@DimensionDev](https://www.instagram.com/dimensiondevacademy.az?igsh=N2JzMmUxM3R5cncw)
+*
+
 ## 📈 My Stats
 
 📧 *Business Inquiry:* ismayilovmurad499@gmail.com
